@@ -1,0 +1,1 @@
+Privacy Policy: This personal tool only uploads local video clips to the owner's TikTok account and does not collect third-party user data.
